@@ -13,4 +13,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: email
 - 😄 Pronouns: Akhi
 - ⚡ Fun fact: I am a ghost
--->
